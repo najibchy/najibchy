@@ -1,1 +1,1 @@
-Mechatronic Systems @ RUET
+Mechatronic Engineering @ RUET
